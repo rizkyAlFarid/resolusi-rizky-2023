@@ -1,2 +1,2 @@
-# resolusi-rizky-2023
-resolusi rizky al farid 2023
+# FITUR 10
+dikerjakan oleh safitri
